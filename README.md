@@ -1,2 +1,2 @@
 # Learning
-all my studyes
+all my studies
